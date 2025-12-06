@@ -4,9 +4,9 @@
 <img width="574" height="371" alt="Captura" src="https://github.com/user-attachments/assets/af411fdd-75c9-4fbb-bfc6-badc5eb8d503" />
 
 ## [https://docs.google.com/document/d/1aqmiJmMBtpeDjt_L94Z5nn6rehoj6n1LB_lRGiyobMU/edit?usp=sharing read this before interacting!!](https://cdn.discordapp.com/attachments/1444733123697836032/1446360615223296184/image0.jpg?ex=6933b3ca&is=6932624a&hm=571eb1849e25bb22eaeb0340532f30c0ee6119fd84eee05683f73e0a699aecbb&) (my ex btw ;-;)
-<img width="165" height="165" alt="image" src="https://github.com/user-attachments/assets/bdf7e050-cba9-4209-affc-0c69c761ae98" />
+<img width="220" height="201" alt="image" src="https://github.com/user-attachments/assets/7390931b-c965-438f-b3e7-493f15e22acf" />
 
-
+‡★‡★‡★‡★‡★‡★‡★‡★‡||
 
 - ⬇ ok. about me? ok? ok. ⬇
 
