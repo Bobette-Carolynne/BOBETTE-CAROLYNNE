@@ -11,10 +11,10 @@ my 5 github's account got suspended and flagged for being a minor
 
 - ⬇ ok. about me? ok? ok. ⬇
 
-# js call me charlie or bobette idk (if u call me pet names, i block freely btw)
+# js call me scarlett or bobette idk (if u call me pet names, i block freely btw)
 # idm any pronouns (she/her mostly preferred because im transfem [**NOT TRANSMASC IT WAS A MISTAKE!!**])
 - [NOTE: ask me if ya wanna be friends, but might be shy when interacting]
-# i like bobette x ginger but **don't** shove the "I HATE BOBETTE X GINGER!!" on my damn face, i do not forced you to ship it 😂🎉 (it's so obvious because of my strawpage)
+# i like bobette x ginger but **don't** shove the "I HATE BOBETTE X GINGER!!" on my damn face, i do not forced you to ship it 👀? (it's so obvious because of my strawpage)
 - [ANOTHER NOTE: ⛔ = AFK or mostly offtab. 🌙/🟢 = ontab or probably making skins if no reply]
 
 ok bye thanks for reading thi 😂🎉
